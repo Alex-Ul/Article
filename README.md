@@ -11,10 +11,12 @@
 Старенький, но очень классный автобус Volkswagen Caravelle  
 
 
-![bus2](http://downloader.disk.yandex.ru/preview/1a82e663d91d5563cf40d1b31de1ef9c18a498f566f65e5c9d70f26d801903d3/6306863e/kLF8eURs0Eb2vz5eNDLbDiIxyNO_-eInKnvHwgkTeDxH4X-clO-QuBywxi9MORpayDol93OZrdYsDXCJsOA7UQ%3D%3D?uid=0&filename=2021-07-27%2011-48-57.JPG&disposition=inline&hash=&limit=0&content_type=image%2Fjpeg&owner_uid=0&tknv=v2&size=600x600)
+![bus2](https://raw.githubusercontent.com/Alex-Ul/Article/main/Pics/Bus.JPG)
 
 ## Локации
 Окрестности Новороссийска  
 
- ![nature](https://downloader.disk.yandex.ru/preview/fbb291e830a586e3e7b625f642d59496ed89f83b93701a1b1581abfc2df13440/63069faa/1EiCuT463JVzWsHacP3da0nycJ2uy5sV2DPnav8bMfBj9fjs79h5Bwr_oQ2fi8SBTVMljiwYp4k-UINp7gOk1w%3D%3D?uid=0&filename=20211017_135819.jpg&disposition=inline&hash=&limit=0&content_type=image%2Fjpeg&owner_uid=0&tknv=v2&size=600x600)
+ ![nature](https://raw.githubusercontent.com/Alex-Ul/Article/main/Pics/Location.jpg)  
+ ![nature2](https://raw.githubusercontent.com/Alex-Ul/Article/main/Pics/Location2.JPG)  
+ 
  
